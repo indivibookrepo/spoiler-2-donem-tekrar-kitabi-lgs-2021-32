@@ -1,0 +1,1 @@
+# spoiler-2-donem-tekrar-kitabi-lgs-2021-32
